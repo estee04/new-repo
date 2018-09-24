@@ -1,1 +1,1 @@
-Don't forget your mom gay
+Thanks for reading me.
